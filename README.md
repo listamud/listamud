@@ -2,5 +2,19 @@
 
 ### Aven's GF ‧₊˚ ☁️⋅♡🪐༘⋆
 
+> DETAIL <
+#### Informasi Pribadi
+- Nama: Lista Apiq Mudrikah
+- Panggilan: Lista/Lilis/Aven's GF
+- Email: listaapiqmud@gmail.com
+- instagram: @sheslylac
 
-My name is Lista Apiq Mudrikah (De floyen), Class (for now) is X4
+#### Pendidikan
+- SDN 1 Purwosari
+- SMP Sains Al-qur'an Wahid Hasyim
+- SMA Sains Al-qur'an Wahid Hasyim
+
+#### Hobi
+- Tidur
+- Nonton Anime
+- Main Game
