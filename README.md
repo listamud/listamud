@@ -2,7 +2,7 @@
 
 ### Aven's GF ‧₊˚ ☁️⋅♡🪐༘⋆
 
-> DETAIL <
+> DETAIL 
 #### Informasi Pribadi
 - Nama: Lista Apiq Mudrikah
 - Panggilan: Lista/Lilis/Aven's GF
